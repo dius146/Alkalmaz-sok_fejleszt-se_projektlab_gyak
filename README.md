@@ -1,0 +1,1 @@
+# Alkalmaz-sok_fejleszt-se_projektlab_gyak
